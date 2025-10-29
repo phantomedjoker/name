@@ -1,8 +1,4 @@
-![naoya](https://i.pinimg.com/736x/2e/93/47/2e9347eb6d8501cd051a91bb21d03ec4.jpg)
+![naoya](https://i.postimg.cc/TPy5SZCP/IMG-4775.jpg![image](https://github.com/user-attachments/assets/df10882d-36e2-44d7-8256-c36c972f208e)
+)
 
-i have the same lvl of cockiness irl ifyk me..
-
-i can be dry whenever you first meet me, so please let me know.
-
-
-my mood is literally randomly generated within my head.
+dry when u first meet me
