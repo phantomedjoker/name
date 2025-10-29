@@ -1,4 +1,7 @@
-![naoya](https://i.postimg.cc/TPy5SZCP/IMG-4775.jpg![image](https://github.com/user-attachments/assets/df10882d-36e2-44d7-8256-c36c972f208e)
-)
+![naoya](https://i.pinimg.com/736x/2e/93/47/2e9347eb6d8501cd051a91bb21d03ec4.jpg)
 
-dry when u first meet me
+levels cannot describe on how much i yell and love my real life friends
+
+before you interacts i must let you know that i might be dry at first, and once i get comfortable i take a minute to process things have have the slowest responses on earth (possibly)
+
+but when im comfortable i say whatever comes to my mind
