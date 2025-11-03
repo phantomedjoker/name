@@ -1,5 +1,5 @@
-              me lowkey.. -----､
-                               v
+              me lowkey.. -------､
+                                 v
 ![naoya](https://i.pinimg.com/736x/dd/eb/84/ddeb84e19282813852d34acc6d7a200f.jpg)
 
 levels cannot describe on how much i yell at (affectionately.. most the time) and love my real life friends
