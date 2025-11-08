@@ -1,4 +1,4 @@
-              me lowkey.. -------､
+              me lowkey.. -------､             || i'm lwk almost everywhere on platforms.. mostly atas? heh.
                                  v
 ![naoya](https://i.pinimg.com/736x/dd/eb/84/ddeb84e19282813852d34acc6d7a200f.jpg)
 
