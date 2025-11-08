@@ -7,3 +7,5 @@ levels cannot describe on how much i yell at (affectionately.. most the time) an
 before you interacts i must let you know that i might be dry at first, and once i get comfortable i take a minute to process things have have the slowest responses on earth (possibly)
 
 but when im comfortable i say whatever comes to my mind
+
+I LOVE ALL MY FRIENDS! even if theres a rift between some, i am NOT one to choose 𝐇𝐄𝐀𝐕𝐘 sides, and i take pity easily, it's just something natural for me to do, and i am one to feel my legs have disappeared and i can feel my heart beating heavily during extremely tense confrontations, if i need a moment, you'll see me leave for a little bit or less to compose myself, and return.
