@@ -1,3 +1,6 @@
+![Profile views](https://komarev.com/ghpvc/?username=phantomedjoker&label=Profile%20views&color=234444&style=flat-square)
+
+
               me lowkey.. -------､  i'm lwk almost everywhere on platforms.. mostly atas?
                                  v
 ![naoya](https://i.pinimg.com/736x/dd/eb/84/ddeb84e19282813852d34acc6d7a200f.jpg)
