@@ -1,7 +1,11 @@
 
-  ![★](https://komarev.com/ghpvc/?username=phantomedjoker&label=Profile%20views&color=234444&style=flat-square)
- 
-  ![nezha2](https://i.pinimg.com/736x/ef/af/8f/efaf8f4787cd1cbe38a8fe1898e68e41.jpg)
+  <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=phantomedjoker&label=🐉%20%20&color=902f19&style=social?" alt="Profile views"/>
+
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/ef/af/8f/efaf8f4787cd1cbe38a8fe1898e68e41.jpg" alt="nezha2" />
+</p>
+
   <p align="center">
   i love themm
- 
