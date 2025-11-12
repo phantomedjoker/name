@@ -1,6 +1,6 @@
 
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=phantomedjoker&label=🐉%20%20&color=902f19&style=social&base=85463" alt="Profile views"/>
+  <img src="https://komarev.com/ghpvc/?username=phantomedjoker&label=🐉%20%20&color=902f19&style=social&base=80" alt="Profile views"/>
 
 
 <p align="center">
