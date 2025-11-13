@@ -1,11 +1,11 @@
 
-  <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=phantomedjoker&label=🐉%20%20&color=902f19&style=social&base=806" alt="Profile views"/>
+  <p align=center>
+  <img src="https://komarev.com/ghpvc/?username=phantomedjoker&label=༆%20%20&color=31393f&style=social&base=806" alt="Profile views"/>
 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/ef/af/8f/efaf8f4787cd1cbe38a8fe1898e68e41.jpg" alt="nezha2" />
+  <img src=https://i.postimg.cc/66VMG4tM/Untitled175-20251113093015.png<img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/d0f33765-5ff1-48ea-a1cd-1af80f9e18a0"
 </p>
 
   <p align="center">
-  i love themm
+  dream of fire
