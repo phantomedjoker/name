@@ -1,15 +1,16 @@
 
-  <p align=center>
+ <p align="center">
   <img src="https://komarev.com/ghpvc/?username=phantomedjoker&label=༆%20%20&color=31393f&style=social&base=806" alt="Profile views"/>
-
-
-<p align="center">
-  <img src=https://i.postimg.cc/66VMG4tM/Untitled175-20251113093015.png<img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/d0f33765-5ff1-48ea-a1cd-1af80f9e18a0"
 </p>
 
-  <p align="center">
-  how the hell do you change font color..
+<p align="center">
+  <img src="https://i.postimg.cc/Jnwb5vvp/IMG-5827.jpg" alt="IMG-5827" />
+</p>
+
 
 <p align="center">
-  <img src="https://i.postimg.cc/1XL6N7bq/IMG-5596.gif">
+i don't check strawpage often so if you drew on it my bad
+
+<p align="center">
+  <img src="https://i.postimg.cc/1XL6N7bq/IMG-5596.gif" alt="gif"/>
 </p>
