@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <a href="https:[//https://phantomedjoker.atabook.org](https://phantomedjoker.atabook.org/)//">atabook</a>
+  <a href="https://phantomedjoker.atabook.org">atabook</a>
 </p>
 
 <p align="center">
