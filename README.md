@@ -30,5 +30,8 @@ i don't check strawpage often so if you drew on it my bad
 hi <a href="https://github.com/MangledSoySauce">soy</a> you finally made a github
 
 <p align="center">
+<a href="https://github.com/dlsmantIe">..</a>
+
+<p align="center">
   <img src="https://i.postimg.cc/1XL6N7bq/IMG-5596.gif" alt="gif"/>
 </p>
