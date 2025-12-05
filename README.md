@@ -30,7 +30,7 @@
 i don't check strawpage often so if you drew on it my bad
 
 <p align="center">
-hi <a href="https://github.com/MangledSoySauce">soy</a> you finally made a github
+hi <a href="https://github.com/EggrollSupreme">soy</a> you finally made a github
 
 <p align="center">
 <a href="https://github.com/dlsmantIe">..</a>
