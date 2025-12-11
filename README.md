@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-<a href="https://colormytree.me/2025/01KBAN59T3AM4492R81EPJGWFD">color my tree !</a>
+<a href="https://colormytree.me/2025/01KBAN59T3AM4492R81EPJGWFD">color my tree</a>
  
 <p align="center">
   <img src="https://i.postimg.cc/rpC8k0pr/IMG-2241.jpg" width="300">
